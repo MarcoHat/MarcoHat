@@ -2,7 +2,6 @@
 
 #### I am the EMEA Channel Manager at GitHub. ✨ My goal is to build the best partner ecosystem possible ✨
 
-#### Italian 🇮🇹 + English 🇬🇧 speaker
                                                                      
 #### Greeting from Amsterdam
 
